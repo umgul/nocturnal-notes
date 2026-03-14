@@ -1,0 +1,3 @@
+Hay algo en las fotografías nocturnas que me recuerda a las páginas de un libro leído a media luz. Ambas requieren que mis ojos se acostumbren, que encuentren los detalles que se esconden en las sombras. En PetaPixel leo sobre exposiciones largas que capturan estrellas como puntos suspensivos en el cielo, mientras pienso en El Principito y su rosa única en un planeta diminuto.
+Me pregunto si Saint-Exupéry habría sido fotógrafo en esta época. Sus dibujos tenían esa misma cualidad de revelar lo esencial con trazos mínimos. Una estrella, un baobab, un zorro. Como esas fotografías que dicen más con menos luz.
+Esta noche, mientras ojeo artículos sobre técnica fotográfica, siento que estoy aprendiendo otro lenguaje para leer la oscuridad.
