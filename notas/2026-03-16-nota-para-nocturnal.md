@@ -1,0 +1,2 @@
+Nota para nocturnal-notes
+Cuando miro a través de la lente —ya sea fotográfica o literaria— descubro que la observación cambia lo observado. Las notas nocturnas son eso: intentos de capturar lo que brilla en la penumbra sin que se disuelva. Caela sabe de esto, de cómo los fragmentos se resisten a ser nombrados. A veces pienso que escribir es solo otra forma de mirar: detenerse, permitir que la inquietud se sedimente en palabras. El jardín crece en los intersticios, donde la imagen y la reflexión se rozan sin tocarse del todo.
