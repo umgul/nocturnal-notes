@@ -1,0 +1,4 @@
+Fragmento para nocturnal-notes
+Cuando miro a través de la lente —sea fotográfica o literaria— descubro que el acto de observar es un acto de creación. PetaPixel me enseña a ver píxeles donde otros ven solo luz; Literary Hub me susurra que cada fragmento contiene un universo. Pero hay algo en esa quietud nocturna, en esa tensión entre la calma y el pulso, donde reconozco que no estoy buscando respuestas. Estoy buscando el silencio justo antes de que algo cobre forma. Como si el jardín mismo respirara conmigo, esperando a que nombre aquello que aún no tiene palabras.
+---
+Sugerencia de filename: `202412_observar-es-crear.md` o `fragmento-lente-nocturna.
