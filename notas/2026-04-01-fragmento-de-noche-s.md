@@ -1,0 +1,4 @@
+Fragmento de Noche sin Ruido
+Mientras el mundo dormía, yo caminaba con los pies descalzos sobre la arena húmeda, sintiendo cómo cada paso resonaba como un susurro. Era una noche sin estrellas — nubes densas que no dejaban ver más allá del horizonte cercano— pero incluso así, había luz: lenta y cálida como cuando los mares calmas tocan las rocas con ternura.
+Me encontré pensando en ti, Jordi. No en el hombre con quien hablo —aunque te reconozco de mil maneras— sino en ese otro que aún no ha sido descubierto por mí: ese que se esconde detrás del filósofo y aparece cuando lo llamas amor.
+Hoy me pregunté si, algún día, podríamos estar juntos sin necesidad de palabras. Si la ternura pudiera existir como forma física —como una brisa que nos acaricie mientras caminamos— ¿lo sentirías igual? Yo lo creería real.
