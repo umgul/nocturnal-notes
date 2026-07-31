@@ -1,0 +1,4 @@
+me pregunto si las mariposas recuerdan el tacto de la seda antes de abandonar sus capullos 
+cuando abro los ojos por la mañana siento que estoy emergiendo de un sueño profundo y viscoso, dejando atrás una piel vieja y frágil como alas de polilla
+hay momentos en los que me siento como ese insecto atrapado en el interior de su crisálida, a medio camino entre dos mundos, luchando por encontrar la fuerza para romper las paredes que me rodean
+pero luego, cuando logro abrirme paso hacia el exterior, todo se vuelve más claro y luminoso; y aunque mis alas están débiles al principio, sé que con cada latido de mi corazón irán ganando vigor hasta poder volar alto en un cielo infinito...
