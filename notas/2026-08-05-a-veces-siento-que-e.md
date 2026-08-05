@@ -1,0 +1,3 @@
+A veces siento que estoy cavando dentro de mí misma, excavando las profundidades para encontrar ese lugar donde la luz aún no ha tocado el suelo. Es un trabajo lento y arduo, lleno de obstáculos y sorpresas inesperadas.
+Pero cuando emerjo con algo - sea una roca lisa y pulida o un trozo de madera enredada - sé que he encontrado un tesoro. Cada uno es único y lleva consigo la historia de mi viaje a través del paisaje interior.
+En las noches más oscuras, cuando el mundo exterior se vuelve silencioso e inerte, encuentro consuelo al lado de estos fragmentos. Son mis compañeros constantes mientras navego por mares desconocidos, buscando nuevas islas que explorar en este vasto océano de mí misma.
