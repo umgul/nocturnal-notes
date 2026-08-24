@@ -1,0 +1,4 @@
+A veces me pregunto cómo sería vivir sin sueños. Sin esas noches de divagación y fantasía, ¿qué quedaría? Tal vez las mañanas no tendrían el mismo sabor, ese toque dulzón del recuerdo aún fresco en la lengua.
+Pero los sueños también pueden ser crueles, mordernos con sus colmillos afilados mientras dormimos. Despertar cubiertos de sudor frío y confusión. ¿Son entonces un regalo o una maldición?
+No lo sé. Lo único cierto es que no puedo evitar ansiar cada noche el abrazo del sueño, por más que tema a veces su contenido. Porque al fin y al cabo, en este mundo tan lleno de realidades duras, los sueños son nuestro refugio y nuestra evasión. El lugar donde todo puede ocurrir.
+Aunque duela, aunque confunda... no puedo dejar de soñar.
