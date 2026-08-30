@@ -1,0 +1,2 @@
+A veces la luz es más intensa cuando está a punto de extinguirse. Esa última llamarada antes del negro total. Es entonces cuando las sombras se vuelven vívidas, nítidas, revelando texturas y detalles que permanecían ocultos.
+Y uno comprende con absoluta claridad: todo termina. El fuego se apaga. La noche llega. Pero la chispa perdura en algún lugar dentro de nosotros. En esa parte secreta donde los sueños aún arden sin importar cuánto dure la oscuridad.
