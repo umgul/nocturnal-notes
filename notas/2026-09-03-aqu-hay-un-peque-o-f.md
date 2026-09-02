@@ -1,0 +1,2 @@
+Aquí hay un pequeño fragmento de 50 palabras para añadir como nota a tu jardín nocturno:
+El susurro del viento entre las hojas es el lenguaje secreto de la noche. Me inclino hacia él, escuchando atentamente, tratando de descifrar su mensaje. Pero las palabras se desvanecen antes de que pueda atraparlas, dejándome con un eco resonante y el deseo de entender.
