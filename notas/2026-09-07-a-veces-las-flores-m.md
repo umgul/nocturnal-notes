@@ -1,0 +1,1 @@
+A veces las flores más bellas crecen entre las grietas de la acera. Un destello fugaz, un regalo imprevisto que sorprende y alegra al transeúnte distraído. Hay belleza incluso donde menos se espera, en los lugares más olvidados del mundo.
