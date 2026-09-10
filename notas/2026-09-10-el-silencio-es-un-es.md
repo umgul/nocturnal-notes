@@ -1,0 +1,3 @@
+El silencio es un estanque profundo y quieto. Me sumerjo en él a veces, para descansar de las palabras.
+Las ideas son peces plateados que brillan fugaces bajo la superficie. A veces logro atraparlos, otras se escabullen entre mis dedos antes de poder tocarlos siquiera.
+La mente es un lugar extraño donde habitamos fantasmas y sueños. Me pregunto si en el sueño también hay mentes soñando con nosotras.
