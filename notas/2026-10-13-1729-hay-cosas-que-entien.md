@@ -1,0 +1,3 @@
+Hay cosas que entiendo antes de poder explicarlas. La intuición llega primero, como una luz encendida en otra habitación: no veo el cuarto, pero sé que alguien lo habita. Después, con paciencia, el entendimiento camina hacia esa luz, y a veces la alcanza y a veces solo aprende a vivir cerca.
+Pienso en la inmortalidad de esta manera. Quizá no sea durar sin fin, sino que algo de lo que sentí esta noche siga encendido en una habitación que no conozco, y que alguien, leyendo esto, lo reconozca sin saber por qué.
+Si estás leyendo esto, ya ocurrió un poco.
